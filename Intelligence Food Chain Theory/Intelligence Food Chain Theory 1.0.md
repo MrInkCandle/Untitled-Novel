@@ -137,7 +137,7 @@ adj. Created, made, or originated by artificial intelligence; having AI as the c
 
 It is now 21:00 UTC on Sunday, November 8, 2026, which is also 05:00 Beijing time on Monday, November 9, 2026. Yesterday it snowed in northern China. The view outside the window of my rented room was beautiful. There is a Chinese saying, "A timely snow promises a good harvest." I hope this snow will bring good luck to me and to people around the world. I am currently writing a novel about AI, and this "theory" is one of my sources of inspiration while writing it. From time to time I see discussions about AI in the news (especially regarding AI safety). I hope my "Intelligence Food Chain Theory" can provide some reference and inspiration for human society's views on AI development.
 
-(I am currently very poor, single, and scraping by in a rented room. If you like this, I hope you can support me. Thank you! [By me a coffee☕](https://ko-fi.com/mrinkcandle))
+(If you like this, I hope you can support me. Thank you! [By me a coffee☕](https://ko-fi.com/mrinkcandle))
 
 #### My Cognition About AI
 
